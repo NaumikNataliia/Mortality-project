@@ -12,3 +12,6 @@ ____________
 
 ### Посилання на презентацію:
 **[Аналіз смертності залежно від причин 2005-2021рр](https://docs.google.com/presentation/d/1bFmqraHM5NPg4Qw5MCCvZbLL9ZT3rECAcZWJMhnUi8E/edit?usp=sharing)**
+
+### **[Посилання на відео](https://drive.google.com/file/d/1zp1MvQn8b1twayzdX9PmovYnBec4QQI3/view?usp=sharing)**
+
